@@ -22,3 +22,7 @@
 
 https://drive.google.com/drive/folders/1f0QFdV4J0JgKRK_PSUa-rIUWUKQZiq4Q?usp=drive_link
 
+### Вопросы по программе курса
+
+https://docs.google.com/document/d/1FUN7XC_HSMcp8YOO2_53aT6B5ujuv81T/edit?usp=sharing&ouid=103128536902175648706&rtpof=true&sd=true
+
